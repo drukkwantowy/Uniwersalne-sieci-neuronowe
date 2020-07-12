@@ -16,3 +16,4 @@ Podobne pradoksy powstają w dobieraniu partnerów by były tylko sprawy rozwodo
 Sieci neuronowe Leonardo mogą dawać takie projekty i obliczenia że będą w 100% zgodne z oczekiwaniami kogoś kto zamawia projekt.
 Takie sieci neuronowe można też stosować w dostosowaniu asortymentu sklepowego do penwej grupy ludzi lub 1 osoby konkretnej. 
 Sieci neuronowe Leonardo są uniwersalne są takie jak sieć neuronowa do pisania programów na zamówienie. 
+W katolickim PRL władzy ludowej podoba się kolor szary i większość przytakuje i słucha propagandy jak głupie bydło tak szary to dobry wybór więc cały świat jest szary. Sieć projektuje inwidualnie pod daną grupę lub osoby takie projekty jakie w ikea się nie dostanie.
