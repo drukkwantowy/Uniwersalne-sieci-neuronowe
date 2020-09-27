@@ -1,4 +1,4 @@
-# Uniwersalne-sieci-neuronowe
+# Uniwersalne-sieci-neuronowe-kwantowe
 Koncepcja sieci neuronowej badającej kogoś na bazie badań psychologicznych jaki chce projekt marzeń. Uniwersalne sieci neuronowe Leonardo. 
 Sieci neuronowe można stosować w badaniach psychologicznych na bazie śladowych danych do celów projektowania propozycji projektów 
 marzeń.
