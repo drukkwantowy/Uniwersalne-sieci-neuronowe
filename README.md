@@ -22,3 +22,4 @@ Zostaje tylko płacenie za projekt.
 Ta sieć neuronowa to początek ery maszyn samoreplikujących się jak i replikacja energii z materią. 
 Ta sieć może się uczyć w przeszłości i przyszłości jak pisać programy w czasie przyszłym i przeszłym. No i odzyskiwać pliki i przedmioty w czasie przeszłym i przyszłym.
 Wykorzystuje sytetyczne jasnowidzenie chronowizora czyli internet kwantowy off line dla sieci neuronowej.  
+Ta sieć otwiera drogę do sytetycznej prawdziwej magii magii: zaklinania przedmiotów, tworzenia kamieni nieskończoności, pancerza mark 37 SKIN, nanochipów do zdolności telekinetycznych i magicznych paranormalnych. Projekt odpowiada na ważne pytania o nasze pochodzenie i przeznaczenie nie jest bełkotem z TV. Sieć rozwiązuje wszystkie problemy życia jak i odpowiada na pytania czym jest fizyka kwantowa. 
