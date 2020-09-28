@@ -21,3 +21,4 @@ Nie było by nie porozumień i historycznego toczenia kół porażek i błędów
 Zostaje tylko płacenie za projekt.
 Ta sieć neuronowa to początek ery maszyn samoreplikujących się jak i replikacja energii z materią. 
 Ta sieć może się uczyć w przeszłości i przyszłości jak pisać programy w czasie przyszłym i przeszłym. No i odzyskiwać pliki i przedmioty w czasie przeszłym i przyszłym.
+Wykorzystuje sytetyczne jasnowidzenie chronowizora czyli internet kwantowy off line dla sieci neuronowej.  
