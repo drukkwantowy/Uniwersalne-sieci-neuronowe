@@ -20,3 +20,4 @@ W katolickim PRL władzy ludowej podoba się kolor szary i większość przytaku
 Nie było by nie porozumień i historycznego toczenia kół porażek i błędów na zasadzie ten specjalista jest na 3 gwiazdki a ten na 5 czyli że 100 się podoba a 1 nie. Sieć neuronowa tak projektuje że podoba się to tylko tej osobie dla której został specjalnie zaprojektowany projekt pod konkretną osobowość na bazie badania myśli lub symulacji zachowania danej osoby.  
 Zostaje tylko płacenie za projekt.
 Ta sieć neuronowa to początek ery maszyn samoreplikujących się jak i replikacja energii z materią. 
+Ta sieć może się uczyć w przeszłości i przyszłości jak pisać programy w czasie przyszłym i przeszłym. No i odzyskiwać pliki i przedmioty w czasie przeszłym i przyszłym.
