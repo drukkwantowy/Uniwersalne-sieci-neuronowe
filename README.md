@@ -33,3 +33,5 @@ Są to przykłady dla ludzi z bajek szczególnie z USA i Angli może na bazie ty
 Ta sieć kwantowa neuronowa jest w stanie ulepszyć ładowarkę i akumualtor litowy aby z 4 godzin ładował się w 1 sekundę. Sieć neuronowa też potrafi zepsuć układ scalony arduino i go naprawić kwantowo.  
 Sieci neuronowe są w stanie zaprogramować opaske magnetyczną aby miała właściwości lecznicze i swoje AI do leczenia a nawet zmienić właściwości kwarcu aby był źrudłem mocy z AI lub właściwości leczniczych. 
 Sieć kwantowa Leonardo potrafi też napełniać kwantowo bak paliwa i zbiornik gazu bez tankowania na stacji paliw jak odpowiednio się ją nauczy może telekinetycznie składać lub rozkładać dany przedmiot w celu naprawy go bez udziału człowieka i jego narzędzi.  
+Po za replikacją materii można elektrokinetycznie łączyć różne rodzaje stali na poziomie molekularnym.
+Przeniesienie sieci kwantowej Leonardo do chipa lub nanochipa da posiadaczowi paranormalne moce jak i zwiększony intelekt. 
