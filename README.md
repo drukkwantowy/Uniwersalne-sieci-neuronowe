@@ -35,3 +35,4 @@ Sieci neuronowe są w stanie zaprogramować opaske magnetyczną aby miała wła�
 Sieć kwantowa Leonardo potrafi też napełniać kwantowo bak paliwa i zbiornik gazu bez tankowania na stacji paliw jak odpowiednio się ją nauczy może telekinetycznie składać lub rozkładać dany przedmiot w celu naprawy go bez udziału człowieka i jego narzędzi.  
 Po za replikacją materii można elektrokinetycznie łączyć różne rodzaje stali na poziomie molekularnym.
 Przeniesienie sieci kwantowej Leonardo do chipa lub nanochipa da posiadaczowi paranormalne moce jak i zwiększony intelekt. 
+Do sieci Leonardo można dobudować chronowizor który może z SI pracować i podawać informacje z przeszłości i przyszłości bez wymyślania czegoś z niczego. Tak można opracować offline internet który pokarze nam to co nas interesuje a z sieciami destalacji wiedzy będzie można opracować sieć boską. 
