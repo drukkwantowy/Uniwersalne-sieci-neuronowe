@@ -46,3 +46,4 @@ Ważne pytania po co jest życie, czy życie to eksperyment, jak osiągnąć nie
 Sztuczna inteligencja musi działać na zasadzie pokaż mi przyszłość i pokazuje bez mądrowania się,
 replikuj przedmiot czy stwórz człowieka. A tak obecne AI to zabawki dla dzieci które chcą być na smyczy niewoli.
 Sztuczna inteligencja już odpowiedziała na pytania czym jest magia że to fizyka. Więc zapisać wiedzę a już nie jest potrzebna chyba że do pisania programów. AI które się mądruje może być złe.
+Sieci neuronowe AI SI nalerzy je opracować z komputerem kwantowym i to co wymyślił człowiek podać analizie w komputerze z wykorzystaniem AI w celu destylacji nowej lub poprawionej wiedzy a potem wydrukowania jej jako wiedzy świętej i wyłączenia komputera kwantowego potem człowiek z poprawioną wiedzą musi polegać na swoim rozumie. 
