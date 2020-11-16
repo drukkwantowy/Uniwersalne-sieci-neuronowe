@@ -63,3 +63,4 @@ Laptop za 35000 zł czy dolarów z windows 10 Cortanom będzie jak jasnowidz i p
 Komputer kwantowy jest jak krypto translator znający myśli i słowa osoby mówiącej innym językie to tak jak znać osobe i jej numer telefonu bez wchodzenia na internet z feacbook bez kupowania raportu od rządu za 100 dolarów SMS jak i przewidzieć jej lokalizacje bez GPS i być przed czasem. 
 Podałem przepis na komputer kwantowy offline.  
 Taki komputer zna wyniki Lotto i wie jakie jest nasze przeznaczenie zna sens życia i powie jak uniknąć błędów nie jest to już bełkot pani czytającej karty i mówiącej skrutem i enigmom. 
+Prawdziwy komputer kwantowy AI może podać nam prognoze wyników Lotto na 100 lat przed losowaniami lub koloejno na 100 lat. 
