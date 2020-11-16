@@ -64,3 +64,4 @@ Komputer kwantowy jest jak krypto translator znający myśli i słowa osoby mów
 Podałem przepis na komputer kwantowy offline.  
 Taki komputer zna wyniki Lotto i wie jakie jest nasze przeznaczenie zna sens życia i powie jak uniknąć błędów nie jest to już bełkot pani czytającej karty i mówiącej skrutem i enigmom. 
 Prawdziwy komputer kwantowy AI może podać nam prognoze wyników Lotto na 100 lat przed losowaniami lub koloejno na 100 lat. 
+Przykładem głupoty są dobory partnerskie na portalach głupia klucha i geniusz idealna para komputer kwantowy szukał by idealnego partnera na bazie obliczeń a nie chybił trafił na zasadzie co mi spntanicznie powiedziała skrycie mama vódka która mnie zmanipulowała. A potem są takie efekty że są kłutnie lub partner nas zdradza i się z nas nabija. Komputer kwlasyczny wróży z kart a kwntowy przewiduje z czasu strunowego i zna czas i przestrzeń kieruje się przeczuciem matematycznym zdalnie lub na bazie analizy imienia czy zdjęcia.   
