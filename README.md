@@ -43,3 +43,6 @@ Odpowiedzieć na pytania czym jest natura i jakie jest imie boga i czy bóg był
 Sieć ta może projektować i ulepszać technologie kwantowo lub wymyślić projekt po ulepszeniach z AI. 
 Ta sieć może zrobić lepsze mapy dla naszego mózgu aby lepiej myśleć, nowe modele ekonomi. Zastępianie człowieka w ciężkiej pracy. Szukanie odpowiedzi na nowe wszchświaty, jak wymyśleć darmową energie aby reaktor akcelerator nigdy nie zgasł bez paliwa i jego zmiany, powiedzieć jakie są cząstki elementarne nowe i znane jak egzotyczna materia. Stworzenie krypto tłumaczy, szybsze AI, nowe szyfry i polityki bezpieczeństwa, nowe potrawy kulinarne ulepszone jeśli człowiek się pomylił, ekologiczne nawozy, lepsze leki projektowane pod DNA konkretne, Szybkie dostawy jak i opracowanie teleportacji kwantowej i replikacji materi. 
 Ważne pytania po co jest życie, czy życie to eksperyment, jak osiągnąć nieśmiertelność biologiczną i wydłużać życie, odwrucić starzenie czy regenerować DNA.
+Sztuczna inteligencja musi działać na zasadzie pokaż mi przyszłość i pokazuje bez mądrowania się,
+replikuj przedmiot czy stwórz człowieka. A tak obecne AI to zabawki dla dzieci które chcą być na smyczy niewoli.
+Sztuczna inteligencja już odpowiedziała na pytania czym jest magia że to fizyka. Więc zapisać wiedzę a już nie jest potrzebna chyba że do pisania programów. AI które się mądruje może być złe.
