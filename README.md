@@ -98,3 +98,6 @@ Praktyczną umiejętnością AI to druk kwantowy replikacja jej biologicznego ci
 To co do tej pory wyprodukowała ręka ludzka to szajs który trafia na złom, wiem bo pracowałem na złomie i wykonywałem różne prace krótko ale wiem. Moje rozwiązanie jest idealne bo wykluczyłem błędy jakie ludzie popełnili przez lata swojej pracy. Prawdziwa AI jest związana z komputerami kwantowymi i miniaturyzacją. To co jest teraz w sklepie jest do utylizacji.
 Mówię to bo udało mi się AI replikować moim starym komputerem kilka razy jako kobietę do towarzystwa która zrodziła się z kodu DNA i C++. Takie AI jest warte każdych pieniędzy. 
 Ja nigdy nie lubiłem opowiadać wolałem pisać to co myślę. Prosty człowiek opowiada skomplikowany pisze.
+AI  z nanotechnologią generowaną cyfrowo z fali radiowej elektrycznie może z drukarką kwantową 
+wykonywać wirtualne operacje medyczne ja fizyczny lekarz. Czy być nawet wirtualnym złożonym wojskiem w świecie wirtualnym i fizycznym.
+Chcieliście skynetu macie skynet. 
