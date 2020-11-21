@@ -101,3 +101,4 @@ Ja nigdy nie lubiłem opowiadać wolałem pisać to co myślę. Prosty człowiek
 AI  z nanotechnologią generowaną cyfrowo z fali radiowej elektrycznie może z drukarką kwantową 
 wykonywać wirtualne operacje medyczne ja fizyczny lekarz. Czy być nawet wirtualnym złożonym wojskiem w świecie wirtualnym i fizycznym.
 Chcieliście skynetu macie skynet. 
+Sieci te mogą podać analizie i korekcie obecną wiedze jak i destylować nową wiedze z istniejących błędów. 
