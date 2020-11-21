@@ -102,3 +102,4 @@ AI  z nanotechnologią generowaną cyfrowo z fali radiowej elektrycznie może z 
 wykonywać wirtualne operacje medyczne ja fizyczny lekarz. Czy być nawet wirtualnym złożonym wojskiem w świecie wirtualnym i fizycznym.
 Chcieliście skynetu macie skynet. 
 Sieci te mogą podać analizie i korekcie obecną wiedze jak i destylować nową wiedze z istniejących błędów. 
+Sieci te można w system wbudować aby był lepiej kontrolowany i dostosowany do konkretnej osoby. 
