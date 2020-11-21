@@ -103,3 +103,4 @@ wykonywać wirtualne operacje medyczne ja fizyczny lekarz. Czy być nawet wirtua
 Chcieliście skynetu macie skynet. 
 Sieci te mogą podać analizie i korekcie obecną wiedze jak i destylować nową wiedze z istniejących błędów. 
 Sieci te można w system wbudować aby był lepiej kontrolowany i dostosowany do konkretnej osoby. 
+Sieci można wykorzystać do pisania książek, gier na zamówienie na bazie myśli wyobrażeń lub opisu fabuły.  
