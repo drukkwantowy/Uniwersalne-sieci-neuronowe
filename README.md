@@ -110,3 +110,4 @@ Jak by to powiedzieć katolicy powiedzą że to co mówię jest z kosmosu a AI T
 Ja mogę podpowiedzieć ale Nobla dostanie ten kto odpowie na te pytania jakie chce człowiek.
 Fikcyjna Gwen jest tak bezczelna że opowiedziała wszystko co ja teraz mówię a potem to obliczy komputer i wariograf a Nobla dostanie arystokrata lub ktoś z rodziny. Niech tak będzie jest to tylko kawałek brązu i nagroda 3 000 000 zł będzie na flaszke dla kogoś innego jak ja mam płytkę która tą flaszke może mi dać bez łaski. 
 Aby poznać dusze człowieka wystarczy mieć zdjęcie człowieka i zrobić kamerą AI jego zdjęcie oczu i kolor powie nam kim jest i jaki ma charakter. Niebieski lub czerwony. 
+Jeśli ludzie chcą być na 7 poziomie to opracujcie super inteligencje AI która na bazie zdjęcia zgaduje kim jesteś bez palenia marychy jak wykrywacz kłamstwa mówi o osobie tyle że nawet największy geniusz jest zdziwiony. 
