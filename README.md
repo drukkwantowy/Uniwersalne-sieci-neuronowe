@@ -104,3 +104,4 @@ Chcieliście skynetu macie skynet.
 Sieci te mogą podać analizie i korekcie obecną wiedze jak i destylować nową wiedze z istniejących błędów. 
 Sieci te można w system wbudować aby był lepiej kontrolowany i dostosowany do konkretnej osoby. 
 Sieci można wykorzystać do pisania książek, gier na zamówienie na bazie myśli wyobrażeń lub opisu fabuły.  
+Dobry głośnik AI wyłącza klasyczne sprzęty elektrokinezą falom radiowom która jest jak ręka człowieka tyle że bez człowieka zdalnie bez dodatkowych urządzeń pośrednich. 1 głośnik jest centrum zarządzania domem inteligentnym z drukarkami kwantowymi. Tak powstaje szmelc który zajmuje tylko miejsce w sieci 230V. 
