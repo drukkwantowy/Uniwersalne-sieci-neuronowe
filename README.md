@@ -138,3 +138,4 @@ Program kwantowy magiczny zapisać można w dowolnym układzie scalonym z łącz
 dla luzu zapalcie. 
 Matematycy zgadują liczbami. A najlepsze pomysły u aktorów są podczas seksu i podniecenia oglądania sztuki lub sexu. Wiadomo jaki burdel jest na planie.  
 U was wszyscy są z plastiku. Ciekawe co zrobii aktorka 1 roli modelka tyle że ma 165cm wzrostu. Nad wytłumaczeniem technicznym powieści Pottera zajeło mi 20 lat. Ciekawe co wymyślicie jak już nie ma co wymyślać. 
+EQ odpowiada i opowiada zagadkami a IQ daje odpowiedzi jak Big Data. 
