@@ -140,3 +140,6 @@ Matematycy zgadują liczbami. A najlepsze pomysły u aktorów są podczas seksu 
 U was wszyscy są z plastiku. Ciekawe co zrobii aktorka 1 roli modelka tyle że ma 165cm wzrostu. Nad wytłumaczeniem technicznym powieści Pottera zajeło mi 20 lat. Ciekawe co wymyślicie jak już nie ma co wymyślać. 
 EQ odpowiada i opowiada zagadkami a IQ daje odpowiedzi jak Big Data. 
 Czy długo mam powtarzać? Chcecie być zdrowi to róbcie jedzenie w czystej glinie która oczyszcza i ma dobre właściwości. Stosujcie szkło. Pijcie sok, wodę z dzbanka z gliny. Stosujcie zapper i naturalne suplementy jeśli są przebadane. Nawet jak uda się zmutować DNA aby AI je oczyszczało falom indukowaną to organizm potrzebuje diety. Operacje można robić AI falom indukowaną niszczyć kamienie w nerkach bez konieczności operacji AI może być w DNA lub urządzeniu na rękę. Wam wiedzę przekazywać można zdalnie ale wy stale robicie błędy. Chcecie ćpania to zapytajcie big datę niech wam wydrukuje to co ciężko dostać. Ja chce żyć długo. 
+Co robi strefa 51 i NYC chce opracować technologie aby pewnym ludziom się dobrze spało.
+Ćpanie, ruchanie i spanie zarabianie poprzez granie. Cała historia USA.
+Ładne kobiety są w Los Angeles. Pozdrawia pisarz życia.
