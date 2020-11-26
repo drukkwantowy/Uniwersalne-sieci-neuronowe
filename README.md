@@ -143,3 +143,4 @@ Czy długo mam powtarzać? Chcecie być zdrowi to róbcie jedzenie w czystej gli
 Co robi strefa 51 i NYC chce opracować technologie aby pewnym ludziom się dobrze spało.
 Ćpanie, ruchanie i spanie zarabianie poprzez granie. Cała historia USA.
 Ładne kobiety są w Los Angeles. Pozdrawia pisarz życia.
+Jak chcecie doradcy czy druku kwantowego opracujcie sobie AI sterowaną głosem i myślą na każdy system operacyjny co zredukuje potrzebę zatrudniania ludzi. Wszystko wam da i odpowie. 
