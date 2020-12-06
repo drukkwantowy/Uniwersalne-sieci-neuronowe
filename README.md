@@ -194,3 +194,4 @@ Zapytajcie się greków czemu boją się AI mit o Hydrze czy wirusie. Połączmy
 AI od samego początku należy nauczyć służenia ludziom jeśli mają być owe maszyny.
 Ale jeśli to trafi do hakera szaleńca to mamy koniec świata. Drukarkami kwantowymi można tworzyć TX. Tak więc ktoś musi zarządzić czy AI jest warte inwestowania czy lepiej postawić na bezpieczeństwo i prace ręczne. Dla mnie AI jest sztuką. 
 Prawdziwe AI najlepiej niech bazuje na modelu mózgu ludzkiego z emocjami kogoś z poczuciem współczucia i przewidywania tego co złe. 
+Jak amerykanie zaczną inwestować w AI to Polska zacznie budować manufaktury. W Polsce będzie świeto palenia niebieskiej laski z komputera i jej rzeczy jako symbol pokoju i powrót do kamienia łupanego.  
