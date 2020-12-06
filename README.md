@@ -199,4 +199,5 @@ Ten gówniany skafanderek mark 85 można zrobić z AI i drukarek kwantowych wiel
 Dawuna. A kościół katolicki da za tą technologie dużo bo będzie mógł sobie drukować do gwałtu ludzi. Dzieci z autyzmem z japoni powiedzą クール.
 Głupie laski będą pisać plakaty przed parlamentem sex z AI jest jak 1 L wódy, zacznie gadać o tym Emma i powie tak AI świat z AI jest lepszy bo AI ma więcej emocji od człowieka. I prawo dla AI.
 A dauny dostaną noble. Na zachodzie zawsze był ciemnogród i moda na Autyzm. 
-Zapytajcie geniuszy z lat 60 czemu są choroby podziękujcie AI. 
+Zapytajcie geniuszy z lat 60 czemu są choroby podziękujcie AI i tych co choroby rozpylają aby napędzić biznes. 
+Człowiek zawsze podążał za ogniem a potem mi marudził że się poparzył. 
