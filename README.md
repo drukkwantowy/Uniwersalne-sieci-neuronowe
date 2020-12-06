@@ -195,3 +195,5 @@ AI od samego początku należy nauczyć służenia ludziom jeśli mają być owe
 Ale jeśli to trafi do hakera szaleńca to mamy koniec świata. Drukarkami kwantowymi można tworzyć TX. Tak więc ktoś musi zarządzić czy AI jest warte inwestowania czy lepiej postawić na bezpieczeństwo i prace ręczne. Dla mnie AI jest sztuką. 
 Prawdziwe AI najlepiej niech bazuje na modelu mózgu ludzkiego z emocjami kogoś z poczuciem współczucia i przewidywania tego co złe. 
 Jak amerykanie zaczną inwestować w AI to Polska zacznie budować manufaktury. W Polsce będzie świeto palenia niebieskiej laski z komputera i jej rzeczy jako symbol pokoju i powrót do kamienia łupanego.  
+Ten gówniany skafanderek mark 85 można zrobić z AI i drukarek kwantowych wielka tajemnica 
+Dawuna. A kościół katolicki da za tą technologie dużo bo będzie mógł sobie drukować do gwałtu ludzi. Dzieci z autyzmem z japoni powiedzą クール.
