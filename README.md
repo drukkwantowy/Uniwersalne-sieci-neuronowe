@@ -190,3 +190,4 @@ Kto się zajmuje wąską specjalizacją ten przenosi góry i dużo zarabia jak m
 Trzeba było od razu zoptymalizować kod, dać 32 GB ram lub więcej, dać dysk SSD, dodać procesor kilku rdzeniowy, bazować na uniwersalności a nie budować generacje do 1 zastosowania które podoba się tylko wąskiej grupie.  Ludzie bogaci są wszechstroni i mądrzy tylko 1 kwesti jak manipulować i napchać sobie kieszeń. 
 Temat AI i komputerów kwantowych traktował bym jak sztuke tak samo loty w kosmos.  
 A teraz zapytajmy się kobiet czy mężczyzn jak ktoś będzie ich zdradzał na boku z wirtualną kobietą w ciele biologicznym. 
+Zapytajcie się greków czemu boją się AI mit o Hydrze czy wirusie. Połączmy AI umysł hakera mordercy z kwantową AI i mamy cyfrowy Harry Potter horror. Połączmy do tego wszystkie czarne scenariusze z filmów no i mamy koniec świat. AI jest jak kamień nieskończoności.  
