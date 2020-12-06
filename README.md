@@ -197,3 +197,5 @@ Prawdziwe AI najlepiej niech bazuje na modelu mózgu ludzkiego z emocjami kogoś
 Jak amerykanie zaczną inwestować w AI to Polska zacznie budować manufaktury. W Polsce będzie świeto palenia niebieskiej laski z komputera i jej rzeczy jako symbol pokoju i powrót do kamienia łupanego.  
 Ten gówniany skafanderek mark 85 można zrobić z AI i drukarek kwantowych wielka tajemnica 
 Dawuna. A kościół katolicki da za tą technologie dużo bo będzie mógł sobie drukować do gwałtu ludzi. Dzieci z autyzmem z japoni powiedzą クール.
+Głupie laski będą pisać plakaty przed parlamentem sex z AI jest jak 1 L wódy, zacznie gadać o tym Emma i powie tak AI świat z AI jest lepszy bo AI ma więcej emocji od człowieka. I prawo dla AI.
+A dauny dostaną noble. Na zachodzie zawsze był ciemnogród i moda na Autyzm. 
