@@ -193,3 +193,4 @@ A teraz zapytajmy się kobiet czy mężczyzn jak ktoś będzie ich zdradzał na 
 Zapytajcie się greków czemu boją się AI mit o Hydrze czy wirusie. Połączmy AI umysł hakera mordercy z kwantową AI i mamy cyfrowy Harry Potter horror. Połączmy do tego wszystkie czarne scenariusze z filmów no i mamy koniec świat. AI jest jak kamień nieskończoności.  
 AI od samego początku należy nauczyć służenia ludziom jeśli mają być owe maszyny.
 Ale jeśli to trafi do hakera szaleńca to mamy koniec świata. Drukarkami kwantowymi można tworzyć TX. Tak więc ktoś musi zarządzić czy AI jest warte inwestowania czy lepiej postawić na bezpieczeństwo i prace ręczne. Dla mnie AI jest sztuką. 
+Prawdziwe AI najlepiej niech bazuje na modelu mózgu ludzkiego z emocjami kogoś z poczuciem współczucia i przewidywania tego co złe. 
