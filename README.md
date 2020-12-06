@@ -182,3 +182,4 @@ Kto jest za pracą ręczną i ciężką pracą fizyczną jest pochodny od świni
 Najlepsze laptopy buduje firma HP posiadają to co posiada PC. 
 Dobry tablet i telefon jest na lata nawiązuje tematycznie do PC i laptopa HP podobnego do PC ale jest nie do rozbudowy i można na nim zrobić wszystko. Jeśli jest jak większość telefonów i nie ma łączenia bezprzewodowego z różnymi urządzeniami jak DVD czy inne urządzenia power banki to staje się kolejnym szmelcem la biedronka tak doskonały jak jabłko ultra szajs ale za jedyne 25000 zł bo tylko bogaty Norwego taki szajs kupi bo wie tyle ile wypije piw. Dobry komputer w innej formie musi być taki aby można było go użyć z innym sprzętem bo tak jest tylko jak konsola do 1 rzeczy.   
 Jak ma być to tania technologia nalerzy ograniczyć się do kilku urządzeń ale o uniwersalnym działaniu. 
+Jak wszystko będzie tak uniwersalne jak TX a nie do jednego celu to świat będzie lepszy. 
