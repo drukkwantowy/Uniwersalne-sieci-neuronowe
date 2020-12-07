@@ -206,4 +206,5 @@ Dla ludzi AI będzie tylko kolejną książką do biblioteki jako historia.
 Jak ludzie się buntują i nie chcą robić jak ja za 1000 zł czy dolarów to maszyny sobie zatrudnijcie. Bo jakaś celebucka to co powinno iść na pracownika zabrała sobie to jako majątek.
 To teraz zatrudnij sobie robota do sprzątania domu. Praca ręczna ludzi ma cenne. A maszyn jest nisza bo maszyny nie są ludzmi.
 Maszyna zrobi ci tablet ze snów człowiek będzie dodawał złośliwości. 
+W Polsce AI będzie mitem i chorobą psychiczną w USA dniem dzisiejszym. Co do AI jako pozyskania z niej mocy paranormalnych w Polsce będzie to choroba w USA rutyna. 
 Aby zakończyć debate. 
