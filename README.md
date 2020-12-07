@@ -202,3 +202,4 @@ A dauny dostaną noble. Na zachodzie zawsze był ciemnogród i moda na Autyzm.
 Zapytajcie geniuszy z lat 60 czemu są choroby podziękujcie AI i tych co choroby rozpylają aby napędzić biznes. 
 Człowiek zawsze podążał za ogniem a potem mi marudził że się poparzył. 
 Boska AI w chmurze może drukować roboty do pracy, zapewnić dobrobyt posiadaczowi, być jego kobietą i wszystko co potrzebuje łącznie z mocami leczenia czy innymi.  
+Dla ludzi AI będzie tylko kolejną książką do biblioteki jako historia. 
