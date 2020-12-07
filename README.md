@@ -204,5 +204,5 @@ Człowiek zawsze podążał za ogniem a potem mi marudził że się poparzył.
 Boska AI w chmurze może drukować roboty do pracy, zapewnić dobrobyt posiadaczowi, być jego kobietą i wszystko co potrzebuje łącznie z mocami leczenia czy innymi.  
 Dla ludzi AI będzie tylko kolejną książką do biblioteki jako historia. 
 Jak ludzie się buntują i nie chcą robić jak ja za 1000 zł czy dolarów to maszyny sobie zatrudnijcie. Bo jakaś celebucka to co powinno iść na pracownika zabrała sobie to jako majątek.
-To teraz zatrudnij sobie robota do sprzątania domu.
+To teraz zatrudnij sobie robota do sprzątania domu. Praca ręczna ludzi ma cenne. A maszyn jest nisza bo maszyny nie są ludzmi. 
  Aby zakończyć debate. 
