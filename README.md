@@ -209,3 +209,4 @@ Maszyna zrobi ci tablet ze snów człowiek będzie dodawał złośliwości.
 W Polsce AI będzie mitem i chorobą psychiczną w USA dniem dzisiejszym. Co do AI jako pozyskania z niej mocy paranormalnych w Polsce będzie to choroba w USA rutyna. 
 Aby zakończyć debate. 
 Aby GitHub miał wszystkie nasze sny i pomysły trzeba zebrać 100% na przyszłość i umieścić to wszystko w głośniku AI jako wyroczni na pytania na bazie pomysłów istniejących lub stworzonych od nowa przez AI. 
+Te sieci kwantowe mogą przeżyć za nas życie powiedzieć jak żyć bez konieczności przeżywania lini czasu opartej o błędy. Mogą wyjaśnić nam jak korzystać z głębi uczuć opisać uczucia jak nie iść drogą złą. 
