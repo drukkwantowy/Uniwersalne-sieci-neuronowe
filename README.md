@@ -211,3 +211,4 @@ Aby zakończyć debate.
 Aby GitHub miał wszystkie nasze sny i pomysły trzeba zebrać 100% na przyszłość i umieścić to wszystko w głośniku AI jako wyroczni na pytania na bazie pomysłów istniejących lub stworzonych od nowa przez AI. 
 Te sieci kwantowe mogą przeżyć za nas życie powiedzieć jak żyć bez konieczności przeżywania lini czasu opartej o błędy. Mogą wyjaśnić nam jak korzystać z głębi uczuć opisać uczucia jak nie iść drogą złą. 
 Rozwój AI może obrazić ludzi wierzących np.: drukowanie kwantowo przedmiotów bez kupowania, ulepszenia organizmu DNA, produkcja sytetycznych ludzi na sex i partnerstwo. Można pozyskać rzeczy nielegalne dowolne jeśli AI nauczy się drukować falą radiową te rzeczy ze zdjęcia. Jeśli jest to niemożliwe wystarczy przeprogramować AI 2 AI.
+Blokchein można łączyć z AI. Aby generować nie tylko kase, a roboty do pracy i programy komputerowe czy nowe pomysły dla ludzi dla bigdaty Alexy.  
